@@ -10,21 +10,26 @@ Co ja nie wiem co tu robie
 ---
 
 
-god damn feel like a hole
-make that contact like it's phat parole
-coming as a crazy - filly then my hate drippy ey 
-when i get on that holy cherreey
+god damn feel like a trolley
 
-never got you fucking cunt
-it is ob again you got me so low
+make that contact like it's parole
+
+coming as a crazy - (filly then my hate drippy gettin it trippy 
+on point munch that holy) cherreey
+
+never got fucking cunt
+it is ob  you got me too low
 enlist, try then degrade me of course
-don't you kite me i'm ready to blow
+don't ever kite me i'm ready to blow
 hey hoe hey
 
-eat my day after day
-out of my way
-out of my way
+light the faith can of day 
+i'll sway
 out of the way
+out of the way
+out of the way
+
+eat you day after day
 
 ride kurwo ride (raj kurwo raj)
 ride prude bitch
