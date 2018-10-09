@@ -9,8 +9,9 @@ yo aye aye aye aye aye aye aye aye
 
 
 petty that feeding troll ey
-(how do i contact) like i'm in parole 
-coming as a fugitive pack can it - be true, only crazy you sayin i'm lazy - (filly then my hate drippy gettin it trippy 
+(how do i contact) like it's dire-ey (i'm in parole) 
+coming as a fugitive pack can - can it be enough, 
+in the blue, only crazy you sayin i'm lazy - (filly then my hate drippy gettin it trippy 
 on point munch that holy) cherreey
 
 ---
@@ -32,18 +33,22 @@ ride kurwo ride (raj kurwo raj)
 ride prude bitch
 
 raj kurwo raj
-
 (ya)
 
 pretty tellin' better go
-hate n dunkin you into that hoe
+hate n dunkin you into blow
 hell is with you when you brawl
 hey hoe
 hey hoe
 hey hoe
+hey hoe
 
-anymore
+don't bother me anymore
 
+x
+x
+x
+x
 pretty hoe
 pretty hoe
 pretty hoe
@@ -52,10 +57,14 @@ pretty hoeeee
 why do i fucking with you
 counting on you to fuck it up
 
+into brawl
+
 violent
 i'm not fucking anymore
 
 (ya)
+
+---
 
 (isn't it obvious you got me that low)
 eat you day after day
