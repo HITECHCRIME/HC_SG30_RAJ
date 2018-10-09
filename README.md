@@ -35,7 +35,7 @@ ride prude bitch
 raj kurwo raj
 (ya)
 
-pretty tellin' better go
+pretty tell, better go
 hate n dunkin you into blow
 hell is with you when you brawl
 hey hoe
@@ -65,6 +65,8 @@ i'm not fucking anymore
 (ya)
 
 ---
+
+(beginning)
 
 (isn't it obvious you got me that low)
 eat you day after day
