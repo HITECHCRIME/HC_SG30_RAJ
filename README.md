@@ -9,7 +9,7 @@ yo aye aye aye aye aye aye aye aye
 
 
 petty that feeding troll ey
-(how do i contact) make that contact like i'm in parole 
+(how do i contact) like i'm in parole 
 coming as a fugitive pack can it - be true, only crazy you sayin i'm lazy - (filly then my hate drippy gettin it trippy 
 on point munch that holy) cherreey
 
