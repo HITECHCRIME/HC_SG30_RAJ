@@ -18,7 +18,7 @@ on point munch that holy) cherreey
 ---
 
 yield to me fucking cunt
-how bout you grind me and tell me to love 
+how bout you grind me and tell me to love  
 n then you poke it, degrade me off course
 don't ever kite me i'm ready to blow
 hey hoe hey
@@ -54,7 +54,7 @@ pretty hoe
 pretty hoe
 pretty hoeeee
 
-why do i keep fucking with ya
+why do i keep fucking  ya
 counting on you to fuck it up
 x
 into brawl
