@@ -11,7 +11,7 @@ runnin' a fugitive pack - can it be enough
 to pop that fucking cherrey
 
 yield to me fucking cunt
-how (bout) you grind me and tell me to love  
+how (about) you grind me and tell me to love  
 and then you poke it, degrade me off course
 don't ever kite me i'm ready to blow
 hey hoe hey
