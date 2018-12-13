@@ -8,7 +8,7 @@ yo aye aye aye aye aye aye aye aye
 ---
 
 
-petty that feeding troll ey
+pity that feeding troll ey
 (how do i contact) like it's dire-ey (i'm in parole) 
 coming as fugitive pack can - can it be enough, 
 
@@ -45,7 +45,7 @@ hey hoe
 
 don't bother me anymore
 
-x
+ready to swallow pride and externals x
 x
 x
 x
