@@ -66,3 +66,31 @@ eat you day after day
 
 in the blue, only crazy you sayin i'm lazy - (filly then my hate drippy gettin it trippy 
 on point munch that holy) cherreey
+
+Raj
+
+It’s okay baby (yaau)
+
+Bree 
+
+Co ja nie wiem co ja tu role
+X contact is stolen pierdole
+X 
+X so away
+
+Never got it you fucking cunt
+It’s obvious ya got me too low
+Of course
+I’m ready to blow
+
+Hey hoe hey
+
+Feel my swerve and my sway
+Out of the way
+Out of the way
+Out of the waaay
+
+Ray kurwo ray
+Raj kurwo bitch
+
+Ya
