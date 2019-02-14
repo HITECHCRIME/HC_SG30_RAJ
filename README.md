@@ -1,5 +1,5 @@
-# HC_SG30_raj
-Hitech Crime Single 'Raj'
+# HC_SG30_Ray
+Hitech Crime Single 'Ray'
 
 it's okay baby (yaaau)
 yo aye aye aye aye aye aye aye aye
