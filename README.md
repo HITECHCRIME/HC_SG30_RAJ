@@ -27,7 +27,7 @@ ride you prude bitch
 raj kurwo raj
 (ya)
 
-pretty face, better go
+pretty face, better go (ready to swallow)
 hate n dunkin you into blow
 hell is when you call
 hell is with you when you brawl
