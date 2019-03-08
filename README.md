@@ -62,7 +62,7 @@ i'm not fucking anymore
 (beginning)
 
 (isn't it obvious you got me that low)
-eat you day after day
+eat you day after day 
 
 in the blue, only crazy you sayin i'm lazy - (filly then my hate drippy gettin it trippy 
 on point munch that holy) cherreey
